@@ -17,7 +17,7 @@ tags: [exhibition, hinterland]
 
 ## Artists
 
-Andrew Wightman · Bean Surfing · Bryn Hall (Byrd) · Chris Hartop · Clara Jonas · Dan Fear · Daniel Scott · Danni Bradford · Eldmer Gill · Eva Jonas · Golden Bear · Hana Backland · Hannah Wheeler · Ig Wilkinson · **Jago Silver** · Jeff Sacree · Jen Dixon · Jenny Shipley · Lee Robertson · Neil Stewart · Nigel Davies · Nicole Heidaripour · Paul Broomfield · Privateer Jerky · Rachael Jenkins · Rich McGonigal · Robbie Jones · Sam Bonney · Shayne House · Sue Read · Upstream
+Andrew Wightman · [@beansurfing](https://www.instagram.com/beansurfing/) · [@brynhall92](https://www.instagram.com/brynhall92/) · Chris Hartop · Clara Jonas · [@roktraktor](https://www.instagram.com/roktraktor/) · Daniel Scott · [@the.reverse.gilder](https://www.instagram.com/the.reverse.gilder/) · Eldmer Gill · Eva Jonas · Golden Bear · Hana Backland · [@hannah_wheeler_art](https://www.instagram.com/hannah_wheeler_art/) · Ig Wilkinson · **[@jagosilver](https://www.instagram.com/jagosilver/)** · Jeff Sacree · [@jendixonarts](https://www.instagram.com/jendixonarts/) · Jenny Shipley · Lee Robertson · Neil Stewart · Nigel Davies · [@heidaripour](https://www.instagram.com/heidaripour/) · Paul Broomfield · Privateer Jerky · Rachael Jenkins · [@vinylrichie77](https://www.instagram.com/vinylrichie77/) · [@robbiewj](https://www.instagram.com/robbiewj/) · Sam Bonney · [@shayne.house](https://www.instagram.com/shayne.house/) · [@suereadart](https://www.instagram.com/suereadart/) · Upstream
 
 ## See also
 
