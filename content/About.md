@@ -6,11 +6,26 @@ title: About Cruel & Curious
 
 **Cruel & Curious** was an annual art and illustration exhibition that ran from 2013 to 2023 at [[Stowe Barton]], a National Trust barn complex on the North Cornwall coast. Eight editions were held over ten years. The series ended following the death of co-founder **Jeff Cherrington** of the National Trust, without whom the event could not continue.
 
+## Inspiration
+
+The exhibition took its name and spirit in part from this poem:
+
+> *How still,*
+> *How strangely still*
+> *The water is today.*
+> *It is not good*
+> *For water*
+> *To be so still that way.*
+>
+> — Langston Hughes, *Sea Calm* (1926)
+
 ## The brief
 
-Every edition was guided by the same creative brief:
+Each exhibition had its own brief shaped by its theme. The four sea-themed editions shared a common tone:
 
 > *"Anti-postcard, unsettlingly gloomy… think heavy winter seas and dagger-edged cliffs, malevolent swells, beachside oddities, tales of mermaids and monsters. The idea that people walk out of the show a little freaked out about the sea, which lies just a few hundred feet away."*
+
+Hinterland (2015), Sanctuary (2016), Nocturne (2019), and Heart (2022) each had their own brief built around their respective themes.
 
 ## The name
 
