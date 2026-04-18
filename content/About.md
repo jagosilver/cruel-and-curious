@@ -37,16 +37,6 @@ Regular supporters: [Finisterre](https://www.finisterre.com), Harbour Brewing Co
 
 Artists paid 30% commission on sales.
 
-## Beyond the exhibition
-
-Cruel & Curious grew from an annual exhibition into a commercial illustration brand:
-
-- A **print series** sold through the Jago Illustration Etsy shop, with the *Nocturne Whale & Swimmer* print becoming the shop's all-time best-seller (261 units, £6,036)
-- An annual **calendar** — a flagship product each year
-- **Wholesale** distribution from 2017
-- **Licensing** deals for editorial, beer branding, spirits, and political campaign materials (Surfers Against Sewage election posters)
-- **Screen printing** production — the Wild Swimmer screen-printed bag among the key pieces
-
 ## This site
 
 This is an archive of the exhibition series — venue, themes, artists, and brief notes for each edition.
