@@ -4,7 +4,7 @@ title: About Cruel & Curious
 
 # About Cruel & Curious
 
-**Cruel & Curious** was an annual art and illustration exhibition that ran from 2013 to 2023 at [[Stowe Barton]], a National Trust barn complex on the North Cornwall coast. Nine editions were held over ten years. The series ended following the death of co-founder **Jeff Cherrington** of the National Trust, without whom the event could not continue.
+**Cruel & Curious** was an annual art and illustration exhibition that ran from 2013 to 2023 at [[Stowe Barton]], a National Trust barn complex on the North Cornwall coast. Eight editions were held over ten years. The series ended following the death of co-founder **Jeff Cherrington** of the National Trust, without whom the event could not continue.
 
 ## The brief
 
