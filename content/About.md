@@ -27,10 +27,6 @@ Each exhibition had its own brief shaped by its theme. The four sea-themed editi
 
 Hinterland (2015), Sanctuary (2016), Nocturne (2019), and Heart (2022) each had their own brief built around their respective themes.
 
-## The name
-
-The name and its associated sea and swimming imagery emerged from early online presence and in-person feedback on what resonated with audiences. By 2013 it had become the umbrella title for a whole strand of work.
-
 ## Organisers
 
 Cruel & Curious was organised by **The September Club** (formerly Hickory Nines), in partnership with the **National Trust**. It ended with the death of National Trust co-founder **Jeff Cherrington**, without whom the event could not continue.
