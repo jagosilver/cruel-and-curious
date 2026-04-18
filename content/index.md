@@ -23,8 +23,9 @@ Running since 2013.
 | [[Sea III (2018)\|2018]] | Cruel & Curious Sea III | 28–29 September 2018 |
 | [[Nocturne (2019)\|2019]] | Cruel & Curious: Nocturne | 27–28 September 2019 |
 | [[Heart (2022)\|2022]] | Cruel & Curious: Heart | 23–24 September 2022 |
-| [[Sea IV (2023)\|2023]] | Cruel & Curious Sea IV | 29–30 September 2023 |
-| [[Final (2024)\|2024]] | Cruel & Curious Sea (Final) | September 2024 |
+| [[Sea IV (2023)\|2023]] | Cruel & Curious Sea IV — *Final edition* | 29–30 September 2023 |
+
+The series ended after 2023 following the death of co-founder **[[Jeff Cherrington]]** of the National Trust, without whom the event could not continue.
 
 ---
 

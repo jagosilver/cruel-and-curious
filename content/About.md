@@ -4,7 +4,7 @@ title: About Cruel & Curious
 
 # About Cruel & Curious
 
-**Cruel & Curious** is an annual art and illustration exhibition that ran from 2013 to 2024 at [[Stowe Barton]], a National Trust barn complex on the North Cornwall coast.
+**Cruel & Curious** was an annual art and illustration exhibition that ran from 2013 to 2023 at [[Stowe Barton]], a National Trust barn complex on the North Cornwall coast. Nine editions were held over ten years. The series ended following the death of co-founder **Jeff Cherrington** of the National Trust, without whom the event could not continue.
 
 ## The brief
 
@@ -18,7 +18,7 @@ The name and its associated sea and swimming imagery emerged from early online p
 
 ## Organisers
 
-Cruel & Curious was organised by **The September Club** (formerly Hickory Nines), in partnership with the **National Trust**.
+Cruel & Curious was organised by **The September Club** (formerly Hickory Nines), in partnership with the **National Trust**. It ended with the death of National Trust co-founder **Jeff Cherrington**, without whom the event could not continue.
 
 Core team:
 - **Cai** — organiser (The September Club)
